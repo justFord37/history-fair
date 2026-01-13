@@ -1,2 +1,0 @@
-"# history-fair" 
-"# history-fair" 
